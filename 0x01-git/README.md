@@ -1,2 +1,2 @@
-my readme is up to date now thank u
+my readme is up to date now thank you
 
